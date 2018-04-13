@@ -23,7 +23,7 @@ From:
 
 Dear Plan Commission,
 
-The owners of 325 West Lakeside Street, Bonnie & Jerry Thiel, are seeking a conditional use approval relative to *Sec. 28.151(f) - Dwelling Units in Mixed-Use Buildings.*  Specifically, this proposal is requesting a reduction of the first floor footprint of a non-residential use from the required 75%, down to 61%.
+The owners of 335 West Lakeside Street, Bonnie & Jerry Thiel, are seeking a conditional use approval relative to *Sec. 28.151(f) - Dwelling Units in Mixed-Use Buildings.*  Specifically, this proposal is requesting a reduction of the first floor footprint of a non-residential use from the required 75%, down to 61%.
 
 A number of years ago, the city had lowered the elevation of Rowell street along the west side of the building.  As a result, the two car garage on the south side of the first floor commercial tenant, was rendered inaccessible. In order to re-utilize the garage in some fashion, the owners renovated the space into a studio apartment.
 
